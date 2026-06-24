@@ -1,5 +1,4 @@
-#SKILLCRAFT TECHNOLOGY
-Task 3 Completed | Business Card Design
+# ✨ Task 3 Completed | Business Card Design
 
 Sharing my third task from my Graphic Design Internship at SkillCraft Technology.
 
